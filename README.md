@@ -1,1 +1,4 @@
-# pega-viado
+# cata-gay
+#captura - homossexual
+#obtem - yag
+#
